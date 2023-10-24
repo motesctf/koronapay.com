@@ -1,0 +1,1 @@
+# koronapay.com\n
